@@ -1,4 +1,4 @@
-# 
+# Enhance Filmora for macOS with professional Filmora for macOS Effect | batch-rendering + chromatic-aberration-fix, the #1 effect. Includes batch-rendering and
 
 
 
